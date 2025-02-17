@@ -18,4 +18,4 @@ About the meetings themselves: For the second and the third meetings we decided 
 
 In reality the required reading only serves as a talking point and the discussions branch into many interesting topics, depends on the members in attendance. Otherwise we have no rigid rules. No compulsion to read beforehand etc.
 
-So, if this is something that interests you and you're confident you can participate actively we'd add you to the Club.
+So, if this is something that interests you and you're confident you can participate actively, please go to **https://www.reddit.com/r/RoyalLitClub/** and send us a request. Thanks.
